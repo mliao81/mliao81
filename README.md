@@ -1,5 +1,5 @@
 
-**cooking some poop 💩** <br>
+**cooking 💩** <br>
 
 
 
